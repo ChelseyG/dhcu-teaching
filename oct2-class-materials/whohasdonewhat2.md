@@ -1,7 +1,7 @@
 # so who has done what?
 
 - Victoria
-- Chelsea
+- Chelsey
 - Kirsten
 - Ayana
 - Fathiya
